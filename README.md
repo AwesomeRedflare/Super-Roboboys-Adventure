@@ -10,3 +10,6 @@ Another mechanic that is in the game but that is really pointless is the ability
 Overall, its really janky, unpolished, and in general not fun. Like, stomping enemies doesn't work half the time, and you will get damaged instead! BRUH
 
 pls pls pls don't play this
+
+
+(music kinda bop tho)
